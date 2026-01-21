@@ -1,4 +1,4 @@
-## Hi there!! (•ᴗ•,)
+## Hi there!! (•ᴗ•)
 
 I'm **Alizah**, a student, creative programmer, curious thinker, and problem-solver 👩‍💻✨. 
 
