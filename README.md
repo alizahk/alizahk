@@ -1,4 +1,4 @@
-## Hi there!! <img src="https://github.com/alizahk/alizahk/blob/main/b0a9f1c9519766d39105633d18bca3a4-removebg-preview.png?raw=true" width="41" />
+## Hi there!! <img src="https://github.com/alizahk/alizahk/blob/main/b0a9f1c9519766d39105633d18bca3a4-removebg-preview.png?raw=true" width="36" />
 
 I'm **Alizah**, a student, creative programmer, curious thinker, and problem-solver 👩‍💻✨. 
 
